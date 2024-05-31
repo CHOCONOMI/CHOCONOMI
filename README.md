@@ -1,7 +1,6 @@
 Halo, I’m ✨ @CHOCONOMI ✨ (you can also call me Nomi, or Chaos) 
-My real name? Sure, I'm ███████ ██████
 
-My interest are... so many. From liking too many series, movies, streamers videogames and even books, to the desire and goal of creating my own stories and adventures. Can I say I'm a geek? ✨ _Maybe_ ✨
+My interest are... so many. From liking too many series, movies, streamers videogames and books, to the desire and goal of creating my own stories and adventures.
 Anyways, that's why I am here! To create content that might inspire others, just as those other worlds inspired me. 
 
 I’m currently learning about ilustration, that's my principal goal. Then I want to learn animation 2D and 3D, and then, who knows? maybe I'll also develop my studies into the videogames development (cause just now I learned about programming, and I love it). 
